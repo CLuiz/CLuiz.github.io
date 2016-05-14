@@ -1,0 +1,1 @@
+Monday is coming up quickly and I am not sure if I am prepared. IMy admission to the May cohort was very last minute - I applied on a whim and things just fell into place.
